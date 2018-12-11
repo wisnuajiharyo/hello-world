@@ -3,4 +3,7 @@ Following Github Guide
 
 Hi folks!
 
-Wisnu here, just try to learn something new
+Just learn.
+
+
+Edit: Been a while
